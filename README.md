@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @dedsec-official0
+- 👀 I’m interested in ethical Hacking
+- 💞️ I’m looking to collaborate with anonymous
+- 📫 How to reach me by my email zaidoaidoalfredo@gmail.com
